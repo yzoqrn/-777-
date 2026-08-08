@@ -20,3 +20,6 @@ https://drive.google.com/file/d/1knFfQ2ghyaGmFYf_Mm2W4Qbmdm08uQPC/view?usp=drive
 
 توغس 2010-2019 واقعي مليون 
 https://drive.google.com/file/d/1VNzp0gt1SmIcGsxIq0yfZq-C9lzM66en/view?usp=drivesdk
+
+لخزز 2017 خويلد
+https://drive.google.com/file/d/10DX54StHq-jt_mOgYXAI1rXzDnmpbpVH/view?usp=drivesdk
