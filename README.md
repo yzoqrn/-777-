@@ -86,3 +86,6 @@ https://www.dropbox.com/scl/fi/v9ehgsc0u2ktkjxl5u8oo/Camry_2011_KHwylD.zip?rlkey
 
 كاpرس اراmكو 
 https://modsfire.com/02Lwk45o7ib0dqn
+
+بي ام 2021 v12 كروم 
+https://drive.google.com/file/d/1Np6chbK-Oyswxp1XMAbaNgrpxCs2W53j/view?usp=drivesdk
