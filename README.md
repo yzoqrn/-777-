@@ -51,9 +51,6 @@ https://modsfire.com/NRUKnwww4GN1o0A
 انىًرا 2024 سعو 
 https://drive.google.com/file/d/1f2G5L6iYa4X6A5JFNKHVN1zjtiqwJmKM/view?usp=drivesdk
 
-يوkن 2019 
-https://drive.google.com/file/d/1h2f0uyDz1WEAcNtB4ScPP__ABucJPf3Z/view?usp=drivesdk
-
 يوkن 2025 
 https://drive.google.com/file/d/1Sy4hf11DAD4iVuidmiAwgs7hTKUGKjUH/view?usp=drivesdk
 
@@ -77,3 +74,15 @@ https://www.dropbox.com/scl/fi/k95zd7lz50w2v760j7zg4/sonata_2004.zip?rlkey=1ukic
 
 يوkن 2014 خويلد 
 https://www.dropbox.com/scl/fi/jtlj5mf67ftv499j9dr43/Yuckon_2014_KHwyl.zip?rlkey=lsddn1g2p4ecy72lwz90890xk&st=ich55ktl&dl=1
+
+كاmري 2024 
+https://www.dropbox.com/scl/fi/lmeq59wyced5dh9tvw7b0/camry75.zip?rlkey=syl11go8vrbzsej5uyovtuoeu&dl=1
+
+مود تصوير + تحسين جودة 
+https://modsfire.com/m3sffUW2x1ZLA8I
+
+كاmري 2011 خويلد 
+https://www.dropbox.com/scl/fi/v9ehgsc0u2ktkjxl5u8oo/Camry_2011_KHwylD.zip?rlkey=26d9hn2jpdqme17qlanbqz33x&st=fq5lkpbd&dl=1
+
+كاpرس اراmكو 
+https://modsfire.com/02Lwk45o7ib0dqn
