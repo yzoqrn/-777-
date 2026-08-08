@@ -8,3 +8,9 @@ https://drive.google.com/file/d/10HxGfMHwmEtSajh6MCfFBOFSKm-HMM61/view?usp=drive
 
 اوريون 2007-2017
 https://www.dropbox.com/scl/fi/sdq3hgw8fqm7dvcekbccz/Soma_Toyota_Aurion.zip?rlkey=37vd2x8ohelijri76sw8mslon&st=ushh7b9z&dl=1
+
+تاhو 2023
+https://drive.google.com/file/d/1feks-gFyuSxpnMrE6wJ2oCV9qaQPqrel/view?usp=drivesdk
+
+ماب توخسك
+https://www.dropbox.com/scl/fi/gwmsy4nxosnn1jtnixlt5/0Toxic_Street_v1_1.zip?rlkey=vgm3hm6uycbh2s2dnpxjo393x&st=grdcf29m&dl=1
