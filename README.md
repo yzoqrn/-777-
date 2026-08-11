@@ -78,8 +78,8 @@ https://www.dropbox.com/scl/fi/jtlj5mf67ftv499j9dr43/Yuckon_2014_KHwyl.zip?rlkey
 كاmري 2024 
 https://www.dropbox.com/scl/fi/lmeq59wyced5dh9tvw7b0/camry75.zip?rlkey=syl11go8vrbzsej5uyovtuoeu&dl=1
 
-مود تصوير + تحسين جودة 
-https://modsfire.com/m3sffUW2x1ZLA8I
+مود لوحات سعودية 
+https://drive.google.com/file/d/1MYZJz7tTY8evBhCDrfrWk4IEEzknry4X/view?usp=drivesdk
 
 كاmري 2011 خويلد 
 https://www.dropbox.com/scl/fi/v9ehgsc0u2ktkjxl5u8oo/Camry_2011_KHwylD.zip?rlkey=26d9hn2jpdqme17qlanbqz33x&st=fq5lkpbd&dl=1
