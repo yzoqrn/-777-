@@ -116,9 +116,8 @@ https://www.dropbox.com/scl/fi/qt3wnl3m7iapu0e1nnpem/Mustawdaeat_KHwylD.zip?rlke
 مـLركيز M7 2007-2011
 https://drive.google.com/file/d/1gJ6FMe2VO0XXuX6c0Hyemkd6SON0u72z/view?usp=drivesdk
 
-توغس 2023 
-https://drive.google.com/file/d/1VgG3G_0nwUBAElLSPq3O6geL0DJ7v-Pp/view?usp=drivesdk
-
+توغس 2026 
+https://drive.google.com/file/d/1x3SJaeYOAXd1Pqd9bMKBPNmTm61B7t-h/view?usp=drivesdk
 وايت مرسدس 
 https://modsfire.com/Whe0SrUl4y1uJZa
 
@@ -195,3 +194,13 @@ https://www.dropbox.com/scl/fi/j6lnurcqyv0fj8vc81cnw/Cruze_2017_KHwylD.zip?rlkey
 
 ا9بتيما 2019 خويلد
 https://www.dropbox.com/scl/fi/j4v4ssvcfh18bfiftszof/Optima_2019_KHwylD.zip?rlkey=4xkvmcpac711khtenp60v4ysk&st=0nskr6jk&dl=1
+
+سـeرا 2013 كام لوك مكسيكي
+https://drive.google.com/file/d/113M-nh8hXJm6MHL5L6iUgARRT3fFHzY-/view?usp=drivesdk
+
+كاdي 2018 غير حق خويلد 2017 
+https://drive.google.com/file/d/1gVFfVi9Au-Eav2R5nqueOWwV-lE73ThG/view?usp=drivesdk
+
+سـاـفر 2020 
+https://drive.google.com/file/d/1T1-bVi4A0jguwMiU1dCFCNfo-JZf8H5A/view?usp=drivesdk
+
