@@ -208,3 +208,6 @@ https://cdn.discordapp.com/attachments/1526735796076285962/1526735797083181186/C
 
 مود جودة وبكسلات 
 https://cdn.discordapp.com/attachments/1535685858525581424/1536298903169671281/polarmoon.io_v1_1_8.zip?ex=6a7ed9d9&is=6a7d8859&hm=daab3f68c6c72c566324963c8ccb732e226b202546fee724a55f344b2c058b1e&
+
+سeرا 2024 كام دبة ب9لت
+https://modsfire.com/gLI9Pj6FZP8DvdW
