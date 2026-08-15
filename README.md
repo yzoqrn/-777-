@@ -203,8 +203,6 @@ https://drive.google.com/file/d/1gVFfVi9Au-Eav2R5nqueOWwV-lE73ThG/view?usp=drive
 https://drive.google.com/file/d/1T1-bVi4A0jguwMiU1dCFCNfo-JZf8H5A/view?usp=drivesdk
 
 
-اsكاليد 23 
-https://cdn.discordapp.com/attachments/1526735796076285962/1526735797083181186/Cadillac.zip?ex=6a7eff43&is=6a7dadc3&hm=47c4f2869b7f6991910c969d23c384607f6f3cfedf8fb2456f9b573669f50700&
 
 مود جودة وبكسلات 
 https://cdn.discordapp.com/attachments/1535685858525581424/1536298903169671281/polarmoon.io_v1_1_8.zip?ex=6a7ed9d9&is=6a7d8859&hm=daab3f68c6c72c566324963c8ccb732e226b202546fee724a55f344b2c058b1e&
@@ -226,3 +224,6 @@ https://drive.google.com/file/d/1V83G7YNdl4bZm8N8ZyKqUNQMY3FOEbsB/view?usp=drive
 
 كـDLي 2015 
 https://drive.google.com/file/d/1dnUDVyWt4RpLWV3wl8tX_xNC4oBUmYnk/view?usp=drivesdk
+
+اك9رد 2023 
+https://modsfire.com/GvlyGubP5eRT267
