@@ -203,10 +203,6 @@ https://drive.google.com/file/d/1gVFfVi9Au-Eav2R5nqueOWwV-lE73ThG/view?usp=drive
 https://drive.google.com/file/d/1T1-bVi4A0jguwMiU1dCFCNfo-JZf8H5A/view?usp=drivesdk
 
 
-
-مود جودة وبكسلات 
-https://cdn.discordapp.com/attachments/1535685858525581424/1536298903169671281/polarmoon.io_v1_1_8.zip?ex=6a7ed9d9&is=6a7d8859&hm=daab3f68c6c72c566324963c8ccb732e226b202546fee724a55f344b2c058b1e&
-
 سeرا 2024 كام دبة ب9لت
 https://modsfire.com/gLI9Pj6FZP8DvdW
 
@@ -227,3 +223,6 @@ https://drive.google.com/file/d/1dnUDVyWt4RpLWV3wl8tX_xNC4oBUmYnk/view?usp=drive
 
 اك9رد 2023 
 https://modsfire.com/GvlyGubP5eRT267
+
+دغسونه غمارتين 2015
+https://drive.google.com/file/d/1RoB49Wz7HNZ9azFc5e4temyM36S1py-p/view?usp=drivesdk
