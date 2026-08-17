@@ -77,8 +77,7 @@ https://www.dropbox.com/scl/fi/jtlj5mf67ftv499j9dr43/Yuckon_2014_KHwyl.zip?rlkey
 https://www.dropbox.com/scl/fi/lmeq59wyced5dh9tvw7b0/camry75.zip?rlkey=syl11go8vrbzsej5uyovtuoeu&dl=1
 
 مود لوحات سعودية 
-https://drive.google.com/file/d/1MYZJz7tTY8evBhCDrfrWk4IEEzknry4X/view?usp=drivesdk
-
+https://cdn.discordapp.com/attachments/1475690045582082149/1475690047973101608/ksaplate_v14.zip?ex=6a4fb8b4&is=6a4e6734&hm=a654ca208313e49db0b1b089fa10b814a60311239d400e1ee5cdac4e78f7ddad&
 كاmري 2011 خويلد 
 https://www.dropbox.com/scl/fi/v9ehgsc0u2ktkjxl5u8oo/Camry_2011_KHwylD.zip?rlkey=26d9hn2jpdqme17qlanbqz33x&st=fq5lkpbd&dl=1
 
@@ -235,3 +234,7 @@ https://www.dropbox.com/scl/fi/w96ujji7264n48ewj23pq/Tshalee7_Caprice.zip?rlkey=
 
 ماب تصوير 
 https://www.dropbox.com/scl/fi/nh3vkw7yvvg440d2r4qon/csr_showroom.zip?rlkey=mkffc3fh0zz7ii8bc5tsumlut&st=ig7owcy9&dl=1
+
+مKسيـمـL ٩٩
+https://www.dropbox.com/scl/fi/08mwa31sgzej4kdmoqbz3/.zip?rlkey=mnqykin800qa5nvx0tqf1allj&st=0ylsgxxk&dl=1
+
