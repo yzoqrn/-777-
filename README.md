@@ -246,4 +246,5 @@ https://drive.google.com/file/d/1uk6yQ3U54SiTB7lULou4qVf2OHEudEMP/view?usp=drive
 بيsتون ميني 2025
 https://drive.google.com/file/d/13wVibzNhbSzWDezkuS6sJXDHW8Y1Hr7N/view?usp=drivesdk
 
-
+توغس 2026 زومفل تجريبي 
+https://drive.google.com/file/d/1pi2WyTR7LhegQI2PYebtW5q7IZGGdaUf/view?usp=drivesdk
