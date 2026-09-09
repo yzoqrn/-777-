@@ -208,11 +208,6 @@ https://modsfire.com/gLI9Pj6FZP8DvdW
 اك9رد 2017 
 https://modsfire.com/V2sQw4hZPikjES7
 
-لزز 2023 بلد واشكال كثير 
-https://drive.google.com/file/d/192EKBc7KJO-7fGkVaNQE-8Hw4QA-YTxF/view?usp=drivesdk
-
-سوsو 24 هجوله 
-https://drive.google.com/file/d/1qhywr4IQFMJQh2GR3052c4HPL0SXb_Yt/view?usp=drivesdk
 
 امبـLلا 2017 
 https://drive.google.com/file/d/1V83G7YNdl4bZm8N8ZyKqUNQMY3FOEbsB/view?usp=drivesdk
@@ -248,9 +243,6 @@ https://drive.google.com/file/d/13wVibzNhbSzWDezkuS6sJXDHW8Y1Hr7N/view?usp=drive
 
 توغس 2026 زومفل تجريبي 
 https://drive.google.com/file/d/1pi2WyTR7LhegQI2PYebtW5q7IZGGdaUf/view?usp=drivesdk
-
-تاHو 2023 مودلاند لوكات سعودية
-https://drive.google.com/file/d/1CjNxZF4mXZegaQ91cYK4vvhoOozkFmS-/view?usp=drivesdk
 
 يـLرس M7 2017 
 https://drive.google.com/file/d/1TJ-GbkWd97ZGRVqIRtb4Ei8Q1Kv7Mgpu/view?usp=drivesdk
