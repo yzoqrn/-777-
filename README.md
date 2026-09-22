@@ -154,9 +154,8 @@ https://modsfire.com/9xDkN4WHDHDG00l
 سeرا خويلد 2013 
 https://drive.google.com/file/d/1nMYBaGr-1QI0ErbLODx-sHDt_K3Kt_Ex/view?usp=drivesdk
 
-شـLص خويلد سبعين عام 
-https://drive.google.com/file/d/1i1gBXKOLqj1JxI0DGSiwYal4WrPeFWeO/view?usp=drivesdk
-
+شـLص خويلد سبعين عام محدث 
+https://www.dropbox.com/scl/fi/pucqogs0rbptieaxu4qqy/.zip?rlkey=ul1ha3j876twjlgfjtahrhyws&st=1wmgr0e9&dl=1
 رBع خويلد سبعين عام 
 https://drive.google.com/file/d/1y-rwWXeh8Sqp1Z_YIVR2Ah12fsUTxL5V/view?usp=drivesdk
 
