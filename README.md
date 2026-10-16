@@ -237,10 +237,10 @@ https://drive.google.com/file/d/1mpLVfuv3BVF8YimZImYpYgC4yfJGIGhR/view?usp=drive
 https://drive.google.com/file/d/1uk6yQ3U54SiTB7lULou4qVf2OHEudEMP/view?usp=drivesdk
 
 
-بيsتون ميني 2025
+بيsتون ميني 2025( مدفوع ) 🔥
 https://drive.google.com/file/d/13wVibzNhbSzWDezkuS6sJXDHW8Y1Hr7N/view?usp=drivesdk
 
-توغس 2026 زومفل تجريبي 
+توغس 2026 زومfل  ( مدفوع ) 🔥
 https://drive.google.com/file/d/1pi2WyTR7LhegQI2PYebtW5q7IZGGdaUf/view?usp=drivesdk
 
 يـLرس M7 2017 
