@@ -1,5 +1,5 @@
 # -777-
-
+تنووييهه انا لا اسامح اي احد يستخدمها بدون اذني تبي تستاذن تعال دسكورد 50q9 
 كاdي خويلد 21 
 https://www.dropbox.com/scl/fi/5v93pohff3uhe2eux1ra4/Tashaleh_cadenza_2021.zip?rlkey=n2lhge6rbywthpbkum877z148&st=8ogjha1g&dl=1
 
@@ -241,7 +241,7 @@ https://drive.google.com/file/d/1uk6yQ3U54SiTB7lULou4qVf2OHEudEMP/view?usp=drive
 https://drive.google.com/file/d/13wVibzNhbSzWDezkuS6sJXDHW8Y1Hr7N/view?usp=drivesdk
 
 توغس 2026 زومfل  ( مدفوع ) 🔥
-https://drive.google.com/file/d/1-hkoeR2KkJlGEa_4KTgDqmnj6el6eLaI/view?usp=drivesdk
+https://drive.google.com/file/d/1Xmw0ynsazI91HvyKCiKSMAfnZbVVC3Yd/view?usp=drivesdk
 
 يـLرس M7 2017 
 https://drive.google.com/file/d/1TJ-GbkWd97ZGRVqIRtb4Ei8Q1Kv7Mgpu/view?usp=drivesdk
