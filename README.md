@@ -282,3 +282,8 @@ https://www.dropbox.com/scl/fi/ygjxgsew4wl0du2197sx2/Avalon22ByFahadAndTurki.zip
 ريو 2012 
 
 https://www.dropbox.com/scl/fi/6bsmmxodzrfihn26j27cp/rio12_meto_dyfwl.zip?rlkey=1h9nkvr34dthyl6https:
+
+س9ناتا 2024 لوكات سعوديه طيس وغيرها 
+
+https://drive.google.com/file/d/1cEXHwwVpj62j0Iq4fzZeCvfavxX04D4x/view?usp=drivesdk
+
