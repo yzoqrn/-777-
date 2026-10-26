@@ -315,3 +315,6 @@ https://drive.google.com/file/d/1BshDDNR2j0KeTTcmdsfH6u2xq-ArN1Lg/view?usp=drive
 
 انتر1  2017 M7  
 https://drive.google.com/file/d/1FWOxcz-BkjWRIqnpas0juSqUoG4lOQqJ/view?usp=drivesdk
+
+مود رمي 🔥
+https://drive.google.com/file/d/1zoSOrYJ2gYZhw7SRb5rdrv_qsnfOtB5q/view?usp=drivesdk
